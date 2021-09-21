@@ -1,2 +1,0 @@
-# novi
-ne bitno
